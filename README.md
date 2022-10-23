@@ -1,4 +1,4 @@
-## Hi there, I'm Tazkia Athariza👋
+## Hi there, I'm Tazkia Athariza Dhivara👋
 ### ✨a junior web developer ✨
 
 I'm Tazkia Athariza, a junior website developer based in Surabaya, Indonesia. Currently I'm more focused on
